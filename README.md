@@ -1,1 +1,1 @@
-thanks to @zakirkun
+jangan lupa untuk menghijaukan profile
